@@ -1,1 +1,1 @@
-cognigyz
+cognifyz
